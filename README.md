@@ -3,8 +3,8 @@
 
 
 
+![ezgif-1-d675af3ded](https://github.com/sardistic/NiTwitter/assets/11499173/2f6a48f3-355c-4d31-a9cb-3e8094b97dc9)
 
-https://github.com/sardistic/NiTwitter/assets/11499173/c3943388-6bc0-4265-9cd8-7bb87fc8cd39
 
 
 
